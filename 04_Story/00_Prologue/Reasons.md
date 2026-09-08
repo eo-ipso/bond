@@ -1,1 +1,1 @@
-X
+X má nejasný původ
