@@ -1,1 +1,2 @@
-X má nejasný původ
+X má nejasný původ. Proto jsou k němu vesničané podezřívaví.
+
