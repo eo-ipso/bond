@@ -1,0 +1,1 @@
+po lovu ženy na sebe navzájem plivou směs, aby se chránily před medvědí silou přemožitele medvěda
